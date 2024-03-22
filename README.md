@@ -1,7 +1,7 @@
 # **Introducción**
 ![este soy yo](https://github.com/pdepjm/2024-tp0-presentacion-bcochon/assets/141299377/2bc543ad-8006-49d3-9b45-cb855fec3cd9)
 
-#### Buenas. Me llamo **Bruno**, tengo 19 años y estoy cursando el segundo año de la carrera de sistemas acá en la facu.
+#### Buenas. Me llamo **Bruno** (Leg. 213.602-8), tengo 19 años y estoy cursando el segundo año de la carrera de sistemas acá en la facu.
 Me gusta mucho la música; estudio también guitarra clásica en el conservatorio Astor Piazzolla. Más allá del estudio, no soy de escuchar música clásica/académica en el día a día. 
 En cuestión de estilos escucho muchas cosas y disfruto banda ir a recitales cuando permite la billetera (poco 😞).  
 
