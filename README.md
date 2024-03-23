@@ -7,7 +7,7 @@ En cuestión de estilos escucho muchas cosas y disfruto banda ir a recitales cua
 
 También disfruto mucho jugar fútbol (si les falta uno para un f5 por zona floresta/parque avellaneda estoy (que me guste no significa que sea bueno (no soy ()))) y soy hincha fanático de River 🐔🐔🐔
 
-No hay mucho más. Tengo una perrita (adjunto fotos).
+No hay mucho más. Tengo una perrita que se llama Eevee, como el pokemon (adjunto fotos).
 
 ![este no soy yo](https://github.com/pdepjm/2024-tp0-presentacion-bcochon/assets/141299377/6d24413d-b21d-4abf-aec0-744db06efb99)
 ![este no soy yo pero ojalá](https://github.com/pdepjm/2024-tp0-presentacion-bcochon/assets/141299377/ad23916a-5174-48bb-8f1b-5d5428f151d0)
